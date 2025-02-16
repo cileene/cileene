@@ -1,3 +1,3 @@
 ## hi
 
-Award-winning recording artist & smart home curator studying Game Design.
+Multi-award-winning recording artist and curator of a (sometimes) smart home, pursuing a degree in Game Design.
