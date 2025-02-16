@@ -1,3 +1,3 @@
 ## hi
 
-Award-winning recording artist & smart home curator pursuing a BSc in Game Design.
+Award-winning recording artist & smart home curator studying Game Design.
